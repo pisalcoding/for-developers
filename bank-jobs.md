@@ -7,7 +7,7 @@
 5. [Asia-Pacific Development Bank(APD)](https://www.apdbank.com.kh/career)
 6. [Bridge Bank](https://www.bridgebank.com.kh/en/careers/)
 7. [Cambodia Asia Bank(CAB)](https://www.cab.com.kh/career?page=en)
-8. [https://www.cab.com.kh/career?page=en](https://www.cambodiapostbank.com.kh/career)
+8. [CAB](https://www.cab.com.kh/career?page=en)
 9. [Canadia Bank](https://www.canadiabank.com.kh/careers)
 10. [Chip Mong Commercial Bank](https://careers.chipmong.com/chip-mong-bank)
 11. [Foreign Trade Bank of Cambodia (FTB)](https://ftb.com.kh/en/careers/?types=job-vacancy)
